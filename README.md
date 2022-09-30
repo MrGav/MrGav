@@ -1,7 +1,5 @@
 ### Hi there 👋, yo it is the real gav
 #### yo fella
-![yo fella](https://imgur.com/a/aVGZVXc)
-
 real
 
 
